@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏻‍💻 Engineer by Day..<br>🥊 Fighter by Night..<br>😂 Comedian by Weekends..<br><br>I'm training to be a inspiring fighter while doing my day job as an Robotics Engineer <br>while bringing joy to those who live around me by cracking an occasional dad/bad jokes..
+👨🏻‍💻 Engineer by Day..<br>🥊 Fighter by Night..<br>😂 Comedian by Weekends..<br><br>I'm training to be a inspiring fighter while doing my day job as an Robotics Engineer <br>while bringing joy to those who live around me by cracking occasional dad/bad jokes..
 
 
 ## 🌐 Socials:
